@@ -39,7 +39,6 @@ My goal is to grow as a technology professional, contribute to meaningful projec
 
 - LinkedIn: https://www.linkedin.com/in/hanumanthu-aneesha-544b42378/
 - Email: 231fa04157@gmail.com
-- 
 
 ---
 
